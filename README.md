@@ -2,4 +2,4 @@
 Design of a Low Cost Transfemoral Knee Prosthesis with MMG for Developing Countries
 
 ## Project Report
-View on [SlideShare](https://www.slideshare.net/AlexanderCamuto/design-of-a-low-cost-transfemoral-knee-prosthesis-with-mmg-for-developing-countries-61159019)
+View on <a href="https://www.slideshare.net/AlexanderCamuto/design-of-a-low-cost-transfemoral-knee-prosthesis-with-mmg-for-developing-countries-61159019">![](https://www.google.com/s2/favicons?domain=https://www.slideshare.net/)</a> <a href="https://www.slideshare.net/AlexanderCamuto/design-of-a-low-cost-transfemoral-knee-prosthesis-with-mmg-for-developing-countries-61159019">SlideShare</a>
